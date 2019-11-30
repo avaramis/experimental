@@ -21,4 +21,4 @@ And more
 
 I seriously don't understand why they can't at least try to pretend and care about their customers billing concerns and about inappropriately keeping accounts closed after payment is made. 
 
-#May as well downgrade to free - afaik all I lose is the wikis and I can figure something else out for that
+# May as well downgrade to free - afaik all I lose is the wikis and I can figure something else out for that
